@@ -37,3 +37,14 @@
 ![image-20231118195816630](C:\Users\Photite\AppData\Roaming\Typora\typora-user-images\image-20231118195816630.png)
 
 ![image-20231118195835874](C:\Users\Photite\AppData\Roaming\Typora\typora-user-images\image-20231118195835874.png)
+
+https://picshack.net/ib/I9wj5M9M0X.png
+
+![I9wj5M9M0X.png](https://picshack.net/ib/I9wj5M9M0X.png)https://picshack.net/ib/jNYYqzfB89.png
+https://picshack.net/ib/08JPMRdqr5.png
+https://picshack.net/ib/Ojv8MAcf2m.png
+https://picshack.net/ib/2flRXaNVs9.png
+https://picshack.net/ib/dH3cu98QGC.png
+https://picshack.net/ib/aX9fyqjHoU.png
+https://picshack.net/ib/c8qCylgBFA.png
+https://picshack.net/ib/ApBt9js99T.png
