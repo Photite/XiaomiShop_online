@@ -45,8 +45,6 @@ npm run build
 
 **全部商品**
 
-![jNYYqzfB89.png](https://picshack.net/ib/jNYYqzfB89.png
-
 ![08JPMRdqr5.png](https://picshack.net/ib/08JPMRdqr5.png)
 
 **商品详情**
