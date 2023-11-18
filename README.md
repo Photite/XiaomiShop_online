@@ -21,7 +21,7 @@
 ```
 1. Clone project
 
-git clone https://github.com/ZeroWdd/vue-store.git
+git clone https://github.com/Photite/XiaomiShop_online.git
 
 2. Project setup
 
